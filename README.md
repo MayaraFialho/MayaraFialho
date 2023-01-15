@@ -1,4 +1,4 @@
-#### *Olá, eu sou a Mayara Fialho,sejam bem vindos ao meu GitHub* 🙋‍♀️ 
+#### *Olá, eu sou a Mayara Fialho,sejam bem vindos ao meu GitHub* 👩‍💻
 
 - 🫀 Atualmente eu trabalho na área da saúde como Técnica de Enfermagem no setor de Cardiologia.
 - 🚀 Em processo de transição de carreira para Tecnologia
